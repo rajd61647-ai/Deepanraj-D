@@ -28,4 +28,4 @@ I am a first-year aerospace engineering student interested in learning programmi
 ---
 
 ##  Connect with Me
-- LinkedIn: (Add your profile link here later)
+- LinkedIn: (www.linkedin.com/in/deepanraj-d-68b080376)
